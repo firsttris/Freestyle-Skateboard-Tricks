@@ -63,6 +63,8 @@ A personal collection of freestyle skateboard tricks with a focus on **footwork*
   https://www.youtube.com/watch?v=HtHs3cxljuM
 - **Do you actually need a freestyle skateboard?**
   https://www.youtube.com/watch?v=7G47cp9kiF8
+- **25 Tricks You Need to Know with Andy Anderson**
+  https://www.youtube.com/watch?v=b16gBgS4yXI
 
   ## Where to buy?
 
