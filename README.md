@@ -34,6 +34,11 @@ A personal collection of freestyle skateboard tricks with a focus on **footwork*
   https://www.youtube.com/shorts/GfU2OiQpcf4
 - **No-Comply 180**  
   https://www.youtube.com/shorts/qbGVlB9R6VY
+- **Vanilla Milkshake**
+  https://www.youtube.com/shorts/MOFJ1_kwC78
+  https://www.youtube.com/shorts/6OVtoTuJyUs
+- **Starberry Milkshake**
+  https://www.youtube.com/shorts/zdWMUuKVedw
 
 ---
 
