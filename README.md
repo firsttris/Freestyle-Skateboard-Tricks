@@ -56,3 +56,11 @@ A personal collection of freestyle skateboard tricks with a focus on **footwork*
 
 - **3 Skateboard Tricks to Learn Before Ollies**  
   https://www.youtube.com/watch?v=HtHs3cxljuM
+- **Do you actually need a freestyle skateboard?**
+  https://www.youtube.com/watch?v=7G47cp9kiF8
+
+  ## Where to buy?
+
+  https://www.marshall-skateboarding.de/freestyle-skateboards
+  https://www.guentermokulys.de/freestyle-komplettboards
+  https://neverenoughskate.shop/en/freestyleboards/freestyle-completes/
